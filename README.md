@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Sol/fly
+- 👀 I’m interested in QSMP, DSMP, art, music,calling, talking,
+- and 3rd life smp
+- 📫 How to reach me! add me know discord
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm a trans pansexual minor😼
